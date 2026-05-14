@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with exclusive liquidity sniper bot | simulation-mode + honeypot-detection, the #1 liquidity sniper bot. Includes simulation-mode and honeypot-detection for a
 
 
 
